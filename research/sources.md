@@ -1,4 +1,4 @@
-# Sources — AI-Powered SEO Content Production
+# Sources - AI-Powered SEO Content Production
 ## Experts Selected
 
 ## 1. Koray Tuğberk Gübür
